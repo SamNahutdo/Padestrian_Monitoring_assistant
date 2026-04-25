@@ -249,3 +249,15 @@ MS101 Project - Hand Gesture Recognition Traffic Control System
 
 ## License
 This project is for educational purposes.
+
+
+yes yes yes
+
+
+jcbercebicbeibve 
+
+
+
+
+
+
